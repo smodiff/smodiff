@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @smodiff
 - 👀 I’m interested in very programming
-- 🌱 I’m currently learning english
+- 🌱 I’m currently learning england language
 - 💞️ I’m looking to collaborate on with ilon mask
 - 📫 How to reach me no
 
